@@ -1,0 +1,5 @@
+- roses are red
+- violets are blue
+- im going CRAZY
+- idk what to do
+- ¯\_(ツ)_/¯
